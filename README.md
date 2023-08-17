@@ -1,16 +1,15 @@
-### Hi there 👋
+### Não seja bem vindo ao meu perfil 🐵
 
-<!--
-**Pedro20082007/Pedro20082007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Meu nome é Astolfinho plays
 
-Here are some ideas to get you started:
+- Eles acham que eu estou estudando na [Alura](https://www.alura.com.br)
+- To copiando oque o cara ta fazendo aq;
+- Não utilizo esse espaço para nada;
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+### Você pode entrar em contato comigo, mas eu prefiro que me deixe quieto 📧
+
+bozinhomckingofela123@gmail.com
+
+@kingofdelas
+
+![](https://media.tenor.com/4mU0-LcyTK4AAAAM/monkey-hug.gif)
