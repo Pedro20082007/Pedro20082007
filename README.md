@@ -1,6 +1,6 @@
 ### Não seja bem vindo ao meu perfil 🐵
 
-Meu nome é Astolfinho plays
+Meu nome é Pedro preis
 
 - Eles acham que eu estou estudando na [Alura](https://www.alura.com.br)
 - To copiando oque o cara ta fazendo aq;
